@@ -1,0 +1,3 @@
+🌟 Hello, I'm Hina
+🏙️ I'm currently studying in NEU - National Economics University
+👀 I'm planning for a secrec project...
